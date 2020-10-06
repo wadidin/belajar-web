@@ -1,3 +1,7 @@
-## Welcome to ajarin
+## Welcome to bekasi
+latihan membuat web
 
-belajar yuk di ajarin aja
+dicoding
+
+
+
